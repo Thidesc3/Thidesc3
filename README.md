@@ -16,8 +16,7 @@
 
 ## Contato
 
-- 📫 Como me encontrar: **thidesc3@gmail.com**  
-- 😄 Pronomes: Ele/Dele  
+- 📫 Como me encontrar: **thidesc3@gmail.com** 
 
 ---
 
