@@ -1,1 +1,1 @@
-# Resolução de Conflito
+Versão da main
